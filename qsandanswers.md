@@ -13,6 +13,6 @@
 -> reported x2  
 -> my phone is low battery  
 -> I dont care :P  
+-> akls jfsh;lksd hf
 -> 
--> 
--> 
+-> ,asdhv sio;cfgi

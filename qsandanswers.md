@@ -5,13 +5,13 @@
 -> reported
 -> teacher I need help
 -> dont help him, help me *derp*
+-> what are you doing
 -> 
+-> I will not do any work
 -> 
+-> I am on my phone
 -> 
--> 
--> 
--> 
--> 
+-> my phone is low battery
 -> 
 -> 
 -> 
